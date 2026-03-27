@@ -7,3 +7,5 @@ Essentials Lab explores modern streetwear culture with a focus on hoodies, every
 https://www.instagram.com/essentialshoodie398/
 https://essentialshoodie18.blogspot.com/
 https://medium.com/@essentialshoodie398
+https://github.com/essentialscloset/Essentials-Hoodie-Canada/issues/3#issue-4150413483
+https://medium.com/@essentialshoodiecan/essentials-hoodie-canada-a-practical-guide-to-quality-fit-and-everyday-style-5efbc9cea912
